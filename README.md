@@ -11,3 +11,5 @@ How to install?
 
 Game created by doktorek4433 (pseudonym). 
 Report any bugs🪱 to dc: doctorek4433
+
+NOTE: This is not a real cryptocurrency earner. Everything shown in this game is a simulation and has no connection with Real Cryptocurrency Earning and/or Purchasing
